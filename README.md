@@ -1,12 +1,13 @@
-#Welcome Fellow Reader
+# Welcome Fellow Reader
 
 This is a collaborative effort between FlyToCreation and Creatomat.
 
-#Socials
---> Creatomat
-https://creatomat.github.io
-https://github.com/Creatomat/
-https://legacy.curseforge.com/members/creatomat/projects
-https://www.youtube.com/channel/UC0c_GJTYB5CW-WE_LSsKFYg
+# Socials
+--> Creatomat <br />
+  https://creatomat.github.io <br />
+  https://github.com/Creatomat/ <br />
+  https://legacy.curseforge.com/members/creatomat/projects <br />
+  https://www.youtube.com/channel/UC0c_GJTYB5CW-WE_LSsKFYg <br />
 
 --> FlyToCreation
+Idk man, let him reply to my dms atleast
