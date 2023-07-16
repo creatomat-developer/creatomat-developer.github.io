@@ -10,4 +10,5 @@ This is a collaborative effort between FlyToCreation and Creatomat.
   https://www.youtube.com/channel/UC0c_GJTYB5CW-WE_LSsKFYg <br />
 
 --> FlyToCreation <br />
-Idk man, let him reply to my dms atleast <br />
+https://instagram.com/flytocreation?igshid=ZDc4ODBmNjlmNQ== <br />
+https://www.snapchat.com/add/savio_mondol?share_id=AbvvgaKp-aY&locale=en-us <br />
