@@ -1,0 +1,7 @@
+A list of what each file does:
+
+    index.html is the first page the people visiting the site will see.
+
+    index_mobile.html is the same as above, but more optimized for mobiles (don't touch this, i will maintain this file).
+
+    README.md is the file that describes all the stuff to anyone looking at the code for this page. (such as social media links)
